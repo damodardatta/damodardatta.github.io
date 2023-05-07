@@ -21,5 +21,5 @@ Hello, I'm Damodar Datta Kancharla and work at [RRC](https://robotics.iiit.ac.in
 
 Until recently, i used to work as Assistant Manager in [Hero MotoCorp Ltd](https://www.heromotocorp.com/en-in.html). During my time at Hero MotoCorp, I had the pleasure of working in the Maintenance Dept (India 1st manufacturing plant with Industry 4.0 for ultilities and maintenace) for the machines of Weld shop and Paint shop.
 
-Apart from Research, i'm otaku 👽 and F1 Tifosi 🏎️. I'm always open for discussion in F1 racing, anime,
+Apart from Research, i'm otaku and F1 Tifosi 🏎️. I'm always open for discussion in F1 racing, anime,
 cooking and movies.
